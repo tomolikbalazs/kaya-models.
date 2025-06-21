@@ -1,1 +1,0 @@
-Fiatal tehetségek támogatása
